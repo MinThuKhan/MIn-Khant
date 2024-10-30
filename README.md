@@ -1,1 +1,1 @@
-# MIn-Khant
+# Min-Khant
